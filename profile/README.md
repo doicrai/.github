@@ -1,1 +1,0 @@
-## Noi suntem cei 2 crai de la răsărit 💯
